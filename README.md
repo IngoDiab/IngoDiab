@@ -1,4 +1,4 @@
-My name is Ingo Diab, I'm 22 and currently living in Montpellier, France.  <br />
+My name is Ingo Diab, I'm 23 and currently living in Montpellier, France.  <br />
 I'm a Junior 3D Programer and a Junior Gameplay Programmer. <br />
 I love videogames (as expected), manga, music, football (or soccer for US friends) and wrestling. <br />
 
